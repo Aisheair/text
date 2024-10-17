@@ -1,0 +1,2 @@
+# charri
+random learing shit
